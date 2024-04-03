@@ -1,0 +1,1 @@
+Los textos que componen este grupo de candidatos a posibles autores, que he denominado Corpus C, han sido seleccionados en función de la relación de proximidad política y personal que sus autores mantuvieron, por una u otra razón, con Francisco Franco, ocupando en varios casos puestos de relevancia cerca del dictador.: 
